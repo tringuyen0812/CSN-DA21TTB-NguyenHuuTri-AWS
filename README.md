@@ -1,1 +1,1 @@
-csn-da21ttb-NguyenHuuTrAWS
+csn-da21ttb-NguyenHuuTri-AWS
